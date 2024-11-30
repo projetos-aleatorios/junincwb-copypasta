@@ -3,6 +3,6 @@
 
 # Menus
 <ol>
-<li><b><a href="copypasta.md" target="_blank">COPYPASTA</a></b><br></li>
-<li><b><a href="ascii.md" target="_blank">ASCII</a></b></li>
+<li><b><a href="copypasta" target="_blank">COPYPASTA</a></b><br></li>
+<li><b><a href="ascii" target="_blank">ASCII</a></b></li>
 </ol>
