@@ -68,3 +68,7 @@ versão censurada > juninho to comendo um amendoim apimentado com farelo vermelh
 ```
 !m junior paporeto meu sonho era ter feito o ensino médio com vose tu ia ficar fracodimais eu ia cuspir na tua merenda colar as páginas do teu caderno com catarro mijar na tua garrafa d'água jogar teu boné no ventilador e também cagaria na tua mochila pra tu voltar todo dia fedorento pra casa igual um leitãozinho bem gorduxinho kkkk tu ia ficar fodido virar o palhacinho obeso da tropa manda 1 salve pra 3 amigos do chat por favor curto muito zua live
 ```
+
+```
+!m Bolaxão tu já quis picar o patrão Bolaxão o que tu fez quando a mina disse que tu é o gordao indiano qual foi tua reação quando a mina disse que tu parecia gordo indiano o que tu falou pra mina quando ela falou que tu era gordo feio indiano bolaxão a mina já falou que tu parece gordo feio e indiano Bolaxão tu já quis picar o patrão Bolaxão o que tu fez quando a mina disse que tu é o gordao indiano qual foi tua reação quando a mina disse que tu parecia gordo indiano o que tu falou pra mina
+```
