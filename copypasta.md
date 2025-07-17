@@ -104,3 +104,47 @@ versão censurada > juninho to comendo um amendoim apimentado com farelo vermelh
 ```
 !m Mambozada o que tu fala quando chegam em voce perguntando teu nome e tu tem que falar que é mambozada tu já falou no alistamento do exército que teu nome é mambozada. Junior tu sempre teve essa cara de retardado ou começou agora
 ```
+
+```
+!m kkkkk ridículo demais tomando outplay pra uma das vaynes mais ancestrais do servidor essa tua kai'sa cachaceira não vale 3 reais seu indiano anão barrigudo ruim da desgraça tu devia ser proibido de pisar na botlane todos os adecês do jogo tinham q estar cinzas nas tuas contas se algum dia eu te pegar de bobeira pelas ruas de éssipê vou te enrabar sem dó, éaporadobolaxão
+```
+
+```
+!m eu nao sei o que é pior kkkkk uma gatinha chegar em voce toda pimposa que ta te dando mole perguntando o que voce faz da vida e tu tem que dizer que é strimer ou meter mentira de eletricista kkkkkk só não é pior que quem trabalha de inventor gordão se vose fosse inventor tu ia espantar a donzela na hora te apruma que tá na hora de inventar mentira nova se quiser pegar numa buceta denovo 3 anos sem ver uma teta te deixou enferrujado demais
+```
+
+```
+!m kkkkkk seloco fida até o cu com essa irelia caquética toda manca de muleta nem aquela riven p c d do surskity é tão ruim aí o bichão se empolga igual um nenezinho desvendando o mundo enquanto ve vídeo do youtube shorts desvendando manaus e o time dele fica se fudendo e xingando o gordo no chat da partida kkkkkk irelia múmia paralítica nunca mais ganhou uma partida ta seguindo os passos do caipira nako mesmo vai ficar enterrado no diamante e descontar a raiva nos outros
+```
+
+```
+!m Maimousinho tu já teve porquinho da índia tu já cuidou de porco indiano será que o bolaxão pica porquinho da índia ou tem pena bolaxão tu faz maldade com roedores
+```
+
+```
+!m Junior tu já ficou jogando pedrinha na merenda do colega na escola ficou incomodando o nerd tu era valentão tu mexia com nerd ficava fazendo bullying com inocente fala a verdade
+```
+
+```
+!m Junior da exclamação watchtime mambozada fica vendo o watchtime do mambozada fica de olho no tempo que o mambozada assistiu
+```
+
+```
+!m Juninho fala a verdade tu nunca foi na praia só foi com o primo no banhado do cic tu ficou colocando sapo dentro da cueca do primo fazer pegadinha tu já encheu a cueca do primo de sapo e apanhou do tio
+```
+
+```
+!m Juninho tu já foi na praia jogar bocha tu jogou bocha atrapalhou a diversão dos idoso tu jogou dominó acabou com a vida dos velho tu não pode ver idoso que quer acabar com tudo fala a verdade
+```
+
+```
+!m Bola de gude tu é feio demais tu é filho de primo tu nasceu de cruzamento de primo tu é tão feio que parece que foi feito em laboratório bola de gude tu tem cara de sola de sapato cheia de sujeira tu é feio e gordo ninguém te quer
+```
+
+```
+!m Já comeu pedação de melancia e cuspiu as sementes no quarto | | | | | | Já comeu ovo frito com oregano | | | | | Já tentou descascar laranja e cortou a polpa | | | | | | Já viu porco na rua e saiu correndo
+```
+
+```
+!m Junior fica falando de ave fala de galo galinha pintinho garnizé pavão fala de ave fala de passarinho fica falando de passarinho Juninho tu já cuidou de passarinho junior tu curte galinha curte galo tu fica falando de ave ou não fala tanto fala a verdade
+```
