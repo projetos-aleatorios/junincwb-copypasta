@@ -72,3 +72,35 @@ versão censurada > juninho to comendo um amendoim apimentado com farelo vermelh
 ```
 !m Bolaxão tu já quis picar o patrão Bolaxão o que tu fez quando a mina disse que tu é o gordao indiano qual foi tua reação quando a mina disse que tu parecia gordo indiano o que tu falou pra mina quando ela falou que tu era gordo feio indiano bolaxão a mina já falou que tu parece gordo feio e indiano Bolaxão tu já quis picar o patrão Bolaxão o que tu fez quando a mina disse que tu é o gordao indiano qual foi tua reação quando a mina disse que tu parecia gordo indiano o que tu falou pra mina
 ```
+
+```
+!m Já foi dormir achando que tava ouvindo chuva e era só abelha tramando algo Tu usaria um boné recheado de abelha pra ir pra balada e manter o estilo bolachao to afim de matar uma vaca so pra fazer um chourizo pra voce ei bolachao imaginavozecomendolinguiçadesangue bolachao sei que na india a vaca e sagrada mas tenho certeza que no off voce aprecia um bovino, ei bolachao vamos fumar um charuto, tenho um charutao de carne enorme para voce, ouça a contagem. 1. 2. 3. 4. 5. esse é o tempo q
+```
+
+```
+!m Enrola linguiça perdigao na cortina ou nao tem moral Bulaxa quero comer vina cozida Ja tentou fazer massagem com saco de arroz e ficou com dor nas costas Topa empurrar carrinho do Condor cheio de pedra só pra dizer que malha Tem coragem de usar cueca cheia de abelha o dia inteiro Tem coragem de escovar o cabelo com uma colmeia de abelha
+```
+
+```
+!m Curte ver abelha brigando com passarinho ou tem medo | | | | | | | | | | | | | | | | | | Tem coragem de usar um bone cheio de abelha e sair no sol Tem coragem de usar cueca cheia de abelha o dia inteiro Bolaxao tu ja picou abelha sem querer achando que era porco bolaxão tu ja pulou no rio pra fugir de abelha
+```
+
+```
+!m Bolaxão tu tem só cara de retardado tu tem postura de homem normal só a cara de retardado gordo indiano desgraçado
+```
+
+```
+!m Bolaxão pica porco pica porco Bolaxão fica picando porco Bolaxão o g d zada pediu a esposa em casamento semana que vem tu volta a picar porco Bolaxão tu não arruma esposa pica porco o dia inteiro Bolaxão tu vai picar porco o g d zada vai casar
+```
+
+```
+!m Bolaxão tu tomou fora comeu pizza sozinho Bolaxão a mina te deixou triste tu ficou gordao comendo só lanche caiu na tentação tu só pensa em comida Bolaxão a mulher te chamou de gordao indiano
+```
+
+```
+!m Mambozada fica falando de espetinho e de deus elefante ganesha pergunta pro Bolaxão se Bolaxão tu já opinou sobre coisas polêmicas ficou falando bosta foi xingado na internet @MAMBOZADA
+```
+
+```
+!m Mambozada o que tu fala quando chegam em voce perguntando teu nome e tu tem que falar que é mambozada tu já falou no alistamento do exército que teu nome é mambozada. Junior tu sempre teve essa cara de retardado ou começou agora
+```
